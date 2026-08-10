@@ -7,7 +7,7 @@ You may have noticed lots of Pony Town Awards Accounts starting to pop up recent
 
 Now, I'm not talking about the ones everyone knows. I mean the players who don't get talked about! Someone you've NEVER seen get an award, someone you admire, someone no one talks about! The same players are always talked about, so lets shine some spotlight on someone who never gets it!
 
-Strawberry Cream wants people who work hard to make their ponies or githubs look nice! People who may not have many friends on here, or who don't have many followers! Someone who doesn't sit on the path on the daily, someone we don't know yet! 
+Strawberry Cream wants people who work hard to make their ponies or githubs look nice! People who may not have many friends on here, or who don't have many followers! Someone who doesn't sit on the path on the daily, someone we don't know yet! Popular players WON'T be added.
 <p align="center">
 <img src="https://files.catbox.moe/vb9zjl.png" />
 </p>
